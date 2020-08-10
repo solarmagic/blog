@@ -41,7 +41,10 @@
 - 아나타노로바다야끼
 	- 카이센동이 맛나보임
 - 만석곱창
-	- 아는 사람이 맨날 간다(근데 
+	- 아는 사람이 맨날 가고 인스타 올린 그 곱창집(근데 물어보니 가격 오르고 안갔다고)
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTYzNTE1NTQ4OCwtMTc5MTAzMzgyN119
+eyJoaXN0b3J5IjpbLTEwOTY5NzM0NjksLTE3OTEwMzM4MjddfQ
+==
 -->
