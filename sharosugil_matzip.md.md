@@ -15,8 +15,13 @@
 	- 되게 신기한 음식인데 잘 만든것 같다. 인기 많아서 줄서야함
 - 다이히로
 	- 사케동(연어덮밥) 먹었는데 맛있다 살짝 먼거 빼고는 괜찮은듯
+- 애슐리
+	- 여기 퀸즈임. 돈 값은 한 듯
 - 섬맛의공방
-	- 
+	- 생일때 여기서 생일파티?를 했다! 이자카야인데 
+- 바닐라스카이
+	- 분위기는 좋은데 비싸 ㅎㅅㅎ..
+	-
 
 ## 가볼까 생각 중인 곳
 
@@ -28,6 +33,6 @@
 - 모힝 (파스타)
 - 멘쇼유라멘
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyMjYwODkzNDMsLTE3OTEwMzM4MjddfQ
+eyJoaXN0b3J5IjpbLTE5MTQ3MTQ5NDksLTE3OTEwMzM4MjddfQ
 ==
 -->
