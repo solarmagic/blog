@@ -1,4 +1,4 @@
-# 샤로수길에서 무엇을 먹을까
+# 서울대입구 ㄱ
 
 지속적으로 업데이트 할 예정
 
@@ -23,5 +23,5 @@
 - 모힝 (파스타)
 - 멘쇼유라멘
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3OTEwMzM4MjddfQ==
+eyJoaXN0b3J5IjpbOTI5MTI1MjI5LC0xNzkxMDMzODI3XX0=
 -->
