@@ -23,6 +23,8 @@
 	- 분위기는 좋은데 (당연히) 비싸 ㅎㅅㅎ.. 여기가 비싼건 아니고 그냥 평범한 가격이긴함
 - 싸움의고수
 	- 커피빈에서 코딩하다 배고프면 바로 앞에 있어서 점심으로 뚝딱하기 좋다
+- 다부찌
+	- 컴공의 전통
 
 ## 가볼까 생각 중인 곳
 
@@ -44,9 +46,10 @@
 	- 아는 사람이 맨날 가고 인스타 올린 그 곱창집(근데 물어보니 가격 오르고 안갔다고)
 - 라이라이켄
 	- 지로스타일 추천 받았다
-
+- 삼백돈 돈까스
+- 차이나당
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzIwMjgxNTg2LC0xMDk2OTczNDY5LC0xNz
-kxMDMzODI3XX0=
+eyJoaXN0b3J5IjpbLTE0NDA2NzYyNjYsMzIwMjgxNTg2LC0xMD
+k2OTczNDY5LC0xNzkxMDMzODI3XX0=
 -->
