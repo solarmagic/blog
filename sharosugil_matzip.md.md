@@ -13,6 +13,9 @@
 	- 얻어 먹었다. 맛있긴 한 듯 초밥 맛없게 만든집은 거의 못보긴 했당
 - 박명주브라더(닭도리탕과 파스타의 퓨전)
 	- 되게 신기한 음식인데 잘 만든것 같다. 인기 많아서 줄서야함
+- 다이히로
+	- 사케동(연어덮밥) 먹었는데 맛있다 살짝 먼거 빼고는 괜찮은듯
+- 섬맛의공방
 	- 
 
 ## 가볼까 생각 중인 곳
@@ -25,5 +28,6 @@
 - 모힝 (파스타)
 - 멘쇼유라멘
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTIxNTgzNjkxMiwtMTc5MTAzMzgyN119
+eyJoaXN0b3J5IjpbLTEyMjYwODkzNDMsLTE3OTEwMzM4MjddfQ
+==
 -->
