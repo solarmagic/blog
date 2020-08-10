@@ -33,14 +33,15 @@
 - 프랑스홍합집
 - 모힝 (파스타)
 - 멘쇼유라멘
+	- 돈코츠가 맛있다함
 - 링고(맥주)
 	- 나 빼고 다 가 본 그 곳
 - 도리도리하찌
 	- 초복날에 박명주브라더랑 여기중에 고민하다 박명주 가 봄
 - 아나타노로바다야끼
-	- 카이ㅔㅅ
-
+	- 카이센동이 맛나보임
+- 만석곱창
+	- 아는 사람이 맨날 간다(근데 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3MzE0NDMwNzAsLTE3OTEwMzM4MjddfQ
-==
+eyJoaXN0b3J5IjpbMTYzNTE1NTQ4OCwtMTc5MTAzMzgyN119
 -->
