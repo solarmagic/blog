@@ -42,9 +42,11 @@
 	- 카이센동이 맛나보임
 - 만석곱창
 	- 아는 사람이 맨날 가고 인스타 올린 그 곱창집(근데 물어보니 가격 오르고 안갔다고)
+- 라이라이켄
+	- 지로스타일 추천 받았다
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwOTY5NzM0NjksLTE3OTEwMzM4MjddfQ
-==
+eyJoaXN0b3J5IjpbMzIwMjgxNTg2LC0xMDk2OTczNDY5LC0xNz
+kxMDMzODI3XX0=
 -->
