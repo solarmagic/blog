@@ -20,8 +20,7 @@
 - 섬맛의공방
 	- 생일때 여기서 생일파티?를 했다! 이자카야인데 
 - 바닐라스카이
-	- 분위기는 좋은데 비싸 ㅎㅅㅎ..
-	-
+	- 분위기는 좋은데 (당연히) 비싸 ㅎㅅㅎ.. 여기가 비싼건 아니고 그냥 평범한 가격이긴함
 
 ## 가볼까 생각 중인 곳
 
@@ -32,7 +31,9 @@
 - 프랑스홍합집
 - 모힝 (파스타)
 - 멘쇼유라멘
+- 
+- 링고(맥주)
+	- 나빼고 다갔어
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5MTQ3MTQ5NDksLTE3OTEwMzM4MjddfQ
-==
+eyJoaXN0b3J5IjpbLTc1NDczODU0NSwtMTc5MTAzMzgyN119
 -->
